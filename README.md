@@ -1,0 +1,2 @@
+# 7slots
+7SLOTS GİRİŞ - 7SLOTS SİTESİNE KAYIT OLUN
